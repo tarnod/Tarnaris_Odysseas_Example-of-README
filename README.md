@@ -1,1 +1,1 @@
-# Tarnaris_Odysseas_Example-of-README
+# Odysseas_Tarnaris_Example-of-README
